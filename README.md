@@ -1,16 +1,17 @@
-## Hi there 👋
+# Halo, Saya [bellaa]! 👋
 
+Saya adalah seorang [mahasiswa] yang suka [sesuatu yang menantang bagi dirikuu].
 
-**shntiabella/shntiabella** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## 📫 Cara Menghubungi Saya
+- Email: [shintiabellaa25@gmail.com)
+- LinkedIn: [coming soon)
+- Instagram: [@shntiabellaa)
 
-Here are some ideas to get you started:
+## ⚡ Fakta Menarik
+- [saya suka alam liar, suka menari, dan suka makann hehe]
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+---
+
+🚀 Jangan lupa follow!
+
 
